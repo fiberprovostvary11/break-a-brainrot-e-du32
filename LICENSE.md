@@ -1,4 +1,4 @@
-
+secret break a brainrot egg Script is the best break a brainrot egg Script, featuring auto-heal and god mode. Safe and powerful for all your needs.
 
 
 
